@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @dksthdus06
+- 👀 I’m interested in anything
+- 🌱 I’m currently learning programming 
+- 📫 How to reach me alexa60120@icloud.com
